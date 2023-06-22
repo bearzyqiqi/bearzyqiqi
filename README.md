@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bearzyqiqi, aka ZUKI
+- 👀 I’m interested in arts
+- 🌱 I’m currently learning painting, piano
+- 💞️ I’m looking to collaborate on AI arts
+- 📫 How to reach me, do you have midjourney?
